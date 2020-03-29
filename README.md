@@ -1,0 +1,1 @@
+# GithubVerkefni_1_Vor_2020
